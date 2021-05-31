@@ -2,4 +2,4 @@
 - 👀 Internship Front End Dev
 - 🌱 FPT Aptech / T3H
 - 💞️ 10/12/2000 / Ha Noi
-- 📫 0367639978 / chienvtth1805008@fpt.edu.vn
+- 📫 0367639978 / chienmaster1012@gmail.com
